@@ -7,3 +7,5 @@
 - 學歷:[輔仁大學經濟學系](https://www.economics.fju.edu.tw/)
 - 興趣:**看電影**
 <hr>
+- 最近新扭的扭蛋
+![Imgur](https://i.imgur.com/9xjdRUB.jpg)
